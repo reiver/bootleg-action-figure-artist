@@ -3,7 +3,7 @@ by [Charles Iliya Krempeaux](http://changelog.ca/)
 
 -----
 
-A list of (so called) **“bootleg” artists** who create **retro action figures** in the style of vintage action figures from the 1960s, 1970s, 1980s, and early 1990s.
+This is a list of (so called) **“bootleg” artists** who create **retro action figures** in the style of vintage action figures from the 1960s, 1970s, 1980s, and early 1990s.
 
 ## Bootleg Art
 
@@ -11,10 +11,36 @@ A list of (so called) **“bootleg” artists** who create **retro action figure
 
 ## Bootleg Action Figure Art
 
-The word “bootleg” traditionally has had a certain meaning. In the case of _“bootleg art”_ and _“bootleg artost”_ the word “bootleg” shouldn't necessarily be interpretted the same way.
+Some **bootleg artists** focus on **vintage** action figures from the 1960s, 1970s, 1980s, and early 1990s, by creating **retro** action figures in one of the styles common in the 1960s, 1970s, 1980s, and early 1990s.
 
-Bootleg artists who make action figures (in the )
+A popular style are 3¾ inch scale (retro) action figures in the style of the old Kenner Star Wars action figurs.
 
 ## Bootleg Action Figure Artists
 
 This is an alphabetically ordered list of bootleg artists who create retro action figures:—
+
+* broke1
+  * [instagram](https://www.instagram.com/broke1/)
+
+* hasnotalent
+  * [instagram](https://www.instagram.com/hasnotalent/)
+
+* healeymade
+  * [instagram](https://www.instagram.com/healeymade/?hl=en) 
+  * [web](https://healeymade.com/) 
+  * [twitter](https://twitter.com/healeymade)
+
+* killer bootlegs
+  * [instagram](https://www.instagram.com/killerbootlegs/)
+  * [web](http://www.killerbootlegs.com/) 
+
+* pendragon
+  * [instagram](https://www.instagram.com/p_e_n_d_r_a_g_o_n/)
+  * [web](https://pendragonbootlegs.com/)
+
+* plastic geek
+  * [instagram](https://www.instagram.com/theplasticgeek/)
+  * [twitter](https://twitter.com/theplasticgeek)
+  * [web](https://www.plasticgeek.com/)
+  * [youtube](https://www.youtube.com/user/kylash327)
+
