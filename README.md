@@ -88,6 +88,11 @@ This is an alphabetically ordered list of bootleg artists who create retro actio
 
 * [instagram](https://www.instagram.com/markhelus/)
 
+### tiddybeantoys
+
+* [etsy](https://www.etsy.com/shop/TiddyBeanToys)
+* [instagram](https://www.instagram.com/tiddybeantoys/)
+
 ### toypizza
 
 * [instagram](https://www.instagram.com/toypizza/)
