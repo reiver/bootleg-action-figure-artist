@@ -63,6 +63,10 @@ This is an alphabetically ordered list of bootleg artists who create retro actio
 * [instagram](https://www.instagram.com/nastytheplastic/)
 * [web](https://www.nastytheplastic.com/)
 
+### palitoyfantastic
+
+[instagram](https://www.instagram.com/palitoyfantastic/)
+
 ### skull & void
 
 * [instagram](https://www.instagram.com/skullandvoid/)
