@@ -36,6 +36,11 @@ This is an alphabetically ordered list of bootleg artists who create retro actio
 * [etsy](https://www.etsy.com/shop/EPOCHARTShop)
 * [instagram](https://www.instagram.com/epoch_art/)
 
+### hasbro
+
+* [store](https://hasbropulse.com/search?q=retro+375)
+* [store](https://hasbropulse.com/search?refinementList%5Bnamed_tags.Series%5D%5B0%5D=Star%20Wars&q=retro%20collection)
+
 ### hasnotalent
 
 * [instagram](https://www.instagram.com/hasnotalent/)
