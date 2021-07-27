@@ -23,6 +23,11 @@ This is an alphabetically ordered list of bootleg artists who create retro actio
 
 * [instagram](https://www.instagram.com/broke1/)
 
+### epoch
+
+* [etsy](https://www.etsy.com/shop/EPOCHARTShop)
+* [instagram](https://www.instagram.com/epoch_art/)
+
 ### hasnotalent
 
 * [instagram](https://www.instagram.com/hasnotalent/)
@@ -42,6 +47,21 @@ This is an alphabetically ordered list of bootleg artists who create retro actio
 
 * [instagram](https://www.instagram.com/killerbootlegs/)
 * [web](http://www.killerbootlegs.com/) 
+
+### malte y. eskestad
+
+* [instagram](https://www.instagram.com/malteeskestad/)
+* [tumblr](https://malteeskestad.tumblr.com/)
+
+### mugcostanzatoys
+
+* [instagram](https://www.instagram.com/mugcostanzatoys/)
+* [web](https://mugcostanzatoys.bigcartel.com/)
+
+### nastytheplastic
+
+* [instagram](https://www.instagram.com/nastytheplastic/)
+* [web](https://www.nastytheplastic.com/)
 
 ### skull & void
 
