@@ -67,15 +67,6 @@ This is an alphabetically ordered list of bootleg artists who create retro actio
 
 [instagram](https://www.instagram.com/palitoyfantastic/)
 
-### skull & void
-
-* [instagram](https://www.instagram.com/skullandvoid/)
-* [web](https://skullandvoid.bigcartel.com/)
-
-### swar tars
-
-* [instagram](https://www.instagram.com/markhelus/)
-
 ### pendragon
 
 * [instagram](https://www.instagram.com/p_e_n_d_r_a_g_o_n/)
@@ -87,4 +78,20 @@ This is an alphabetically ordered list of bootleg artists who create retro actio
 * [twitter](https://twitter.com/theplasticgeek)
 * [web](https://www.plasticgeek.com/)
 * [youtube](https://www.youtube.com/user/kylash327)
+
+### skull & void
+
+* [instagram](https://www.instagram.com/skullandvoid/)
+* [web](https://skullandvoid.bigcartel.com/)
+
+### swar tars
+
+* [instagram](https://www.instagram.com/markhelus/)
+
+### toypizza
+
+* [instagram](https://www.instagram.com/toypizza/)
+* [twitch](https://www.knightsoftheslice.com/)
+* [twitter](https://twitter.com/toy_pizza)
+* [web](https://www.knightsoftheslice.com/)
 
