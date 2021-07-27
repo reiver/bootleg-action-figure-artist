@@ -19,28 +19,34 @@ A popular style are 3¾ inch scale (retro) action figures in the style of the ol
 
 This is an alphabetically ordered list of bootleg artists who create retro action figures:—
 
-* broke1
-  * [instagram](https://www.instagram.com/broke1/)
+### broke1
 
-* hasnotalent
-  * [instagram](https://www.instagram.com/hasnotalent/)
+* [instagram](https://www.instagram.com/broke1/)
 
-* healeymade
-  * [instagram](https://www.instagram.com/healeymade/?hl=en) 
-  * [web](https://healeymade.com/) 
-  * [twitter](https://twitter.com/healeymade)
+### hasnotalent
 
-* killer bootlegs
-  * [instagram](https://www.instagram.com/killerbootlegs/)
-  * [web](http://www.killerbootlegs.com/) 
+* [instagram](https://www.instagram.com/hasnotalent/)
 
-* pendragon
-  * [instagram](https://www.instagram.com/p_e_n_d_r_a_g_o_n/)
-  * [web](https://pendragonbootlegs.com/)
+### healeymade
 
-* plastic geek
-  * [instagram](https://www.instagram.com/theplasticgeek/)
-  * [twitter](https://twitter.com/theplasticgeek)
-  * [web](https://www.plasticgeek.com/)
-  * [youtube](https://www.youtube.com/user/kylash327)
+* [instagram](https://www.instagram.com/healeymade/?hl=en) 
+* [web](https://healeymade.com/) 
+* [twitter](https://twitter.com/healeymade)
+
+### killer bootlegs
+
+* [instagram](https://www.instagram.com/killerbootlegs/)
+* [web](http://www.killerbootlegs.com/) 
+
+### pendragon
+
+* [instagram](https://www.instagram.com/p_e_n_d_r_a_g_o_n/)
+* [web](https://pendragonbootlegs.com/)
+
+### plastic geek
+
+* [instagram](https://www.instagram.com/theplasticgeek/)
+* [twitter](https://twitter.com/theplasticgeek)
+* [web](https://www.plasticgeek.com/)
+* [youtube](https://www.youtube.com/user/kylash327)
 
