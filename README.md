@@ -109,6 +109,10 @@ This is an alphabetically ordered list of bootleg artists who create retro actio
 
 * [store](https://super7.com/collections/reaction-figures)
 
+### supersonicpilot
+
+* [instagram](https://www.instagram.com/supersonicpilot/)
+
 ### swar tars
 
 * [instagram](https://www.instagram.com/markhelus/)
