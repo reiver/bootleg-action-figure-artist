@@ -92,6 +92,10 @@ This is an alphabetically ordered list of bootleg artists who create retro actio
 * [instagram](https://www.instagram.com/skullandvoid/)
 * [web](https://skullandvoid.bigcartel.com/)
 
+### super7
+
+* [store](https://super7.com/collections/reaction-figures)
+
 ### swar tars
 
 * [instagram](https://www.instagram.com/markhelus/)
