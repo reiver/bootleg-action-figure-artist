@@ -65,7 +65,11 @@ This is an alphabetically ordered list of bootleg artists who create retro actio
 
 ### palitoyfantastic
 
-[instagram](https://www.instagram.com/palitoyfantastic/)
+* [instagram](https://www.instagram.com/palitoyfantastic/)
+
+### pamrotoys
+
+* [instagram](https://www.instagram.com/pamrotoys/)
 
 ### pendragon
 
