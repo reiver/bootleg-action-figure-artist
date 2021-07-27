@@ -19,6 +19,10 @@ A popular style are 3¾ inch scale (retro) action figures in the style of the ol
 
 This is an alphabetically ordered list of bootleg artists who create retro action figures:—
 
+### blackmajor
+
+* [instagram](https://instagram.com/blackmajor/)
+
 ### broke1
 
 * [instagram](https://www.instagram.com/broke1/)
