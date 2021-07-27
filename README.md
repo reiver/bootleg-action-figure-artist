@@ -23,6 +23,10 @@ This is an alphabetically ordered list of bootleg artists who create retro actio
 
 * [instagram](https://www.instagram.com/broke1/)
 
+### djsolo
+
+* [instagram](https://www.instagram.com/djsoloisawesome/)
+
 ### epoch
 
 * [etsy](https://www.etsy.com/shop/EPOCHARTShop)
