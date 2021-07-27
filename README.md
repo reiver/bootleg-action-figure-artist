@@ -29,9 +29,14 @@ This is an alphabetically ordered list of bootleg artists who create retro actio
 
 ### healeymade
 
-* [instagram](https://www.instagram.com/healeymade/?hl=en) 
+* [instagram](https://www.instagram.com/healeymade/) 
 * [web](https://healeymade.com/) 
 * [twitter](https://twitter.com/healeymade)
+
+### kier's customs
+
+* [instagram](https://www.instagram.com/kiers.customs/)
+* [web](https://kierscustoms.bigcartel.com/)
 
 ### killer bootlegs
 
