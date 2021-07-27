@@ -57,6 +57,10 @@ This is an alphabetically ordered list of bootleg artists who create retro actio
 * [instagram](https://www.instagram.com/malteeskestad/)
 * [tumblr](https://malteeskestad.tumblr.com/)
 
+### mezco toys
+
+* [store](https://www.mezcotoyz.com/5-points)
+
 ### mugcostanzatoys
 
 * [instagram](https://www.instagram.com/mugcostanzatoys/)
