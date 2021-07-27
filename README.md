@@ -66,6 +66,11 @@ This is an alphabetically ordered list of bootleg artists who create retro actio
 * [instagram](https://www.instagram.com/mugcostanzatoys/)
 * [web](https://mugcostanzatoys.bigcartel.com/)
 
+### multiversity
+
+* [instagram](https://www.instagram.com/themultiversity/)
+* [store](https://multiversity.storenvy.com/)
+
 ### nastytheplastic
 
 * [instagram](https://www.instagram.com/nastytheplastic/)
