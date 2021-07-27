@@ -43,6 +43,15 @@ This is an alphabetically ordered list of bootleg artists who create retro actio
 * [instagram](https://www.instagram.com/killerbootlegs/)
 * [web](http://www.killerbootlegs.com/) 
 
+### skull & void
+
+* [instagram](https://www.instagram.com/skullandvoid/)
+* [web](https://skullandvoid.bigcartel.com/)
+
+### swar tars
+
+* [instagram](https://www.instagram.com/markhelus/)
+
 ### pendragon
 
 * [instagram](https://www.instagram.com/p_e_n_d_r_a_g_o_n/)
