@@ -124,6 +124,12 @@ This is an alphabetically ordered list of bootleg artists who create retro actio
 * [web](https://www.plasticgeek.com/)
 * [youtube](https://www.youtube.com/user/kylash327)
 
+### popprolific
+
+* [instagram](https://www.instagram.com/popprolific/)
+* [twitter](https://twitter.com/popprolific)
+* [web](https://www.popprolific.com/)
+
 ### skull & void
 
 * [instagram](https://www.instagram.com/skullandvoid/)
