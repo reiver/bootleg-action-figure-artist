@@ -22,6 +22,7 @@ Although there are other styles: such as:
 * the **3¾ inch scale** (retro) action figures in the style of the vintage **Fisher-Price** **Adventure People**,
 * the **3¾ inch scale** (retro) action figures in the style of the vintage **Kenner** **Super Powers Collection**,
 * the **3¾ inch scale** (retro) action figures in the style of the vintage **Hasbro** **G.I. Joe A.R.A.H.**,
+* the **5½ inch (squat) scale** (retro) action figures in the style of the vintage **Mattel** **Masters of the Universe**,
 
 ## Bootleg Action Figure Artists
 
