@@ -3,7 +3,7 @@ by [Charles Iliya Krempeaux](http://changelog.ca/)
 
 -----
 
-This is a list of (so called) **“bootleg” artists** who create **retro action figures** in the style of vintage action figures from the 1960s, 1970s, 1980s, and early 1990s.
+This is a list of (so called) **“bootleg” artists** who create **retro action figures** in the style of **vintage action figures** from the 1960s, 1970s, 1980s, and early 1990s.
 
 ## Bootleg Art
 
