@@ -132,6 +132,7 @@ This is an alphabetically ordered list of bootleg artists who create retro actio
 ### sucklord
 
 * [instagram](https://www.instagram.com/sucklord/)
+* [twitter](https://twitter.com/sucklord)
 * [web](http://www.suckadelic.com/)
 
 ### super7
