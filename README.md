@@ -65,6 +65,11 @@ This is an alphabetically ordered list of bootleg artists who create retro actio
 * [web](https://healeymade.com/) 
 * [twitter](https://twitter.com/healeymade)
 
+### hotgtoys
+
+* [instagram](https://www.instagram.com/hotgtoys/)
+* [store](https://www.hammerofthegodstoys.com/shop)
+
 ### joe amato customs
 
 * [instagram](https://www.instagram.com/joeamatocustoms/)
