@@ -13,7 +13,15 @@ This is a list of (so called) **“bootleg” artists** who create **retro actio
 
 Some **bootleg artists** focus on **vintage** action figures from the 1960s, 1970s, 1980s, and early 1990s, by creating **retro** action figures in one of the styles common in the 1960s, 1970s, 1980s, and early 1990s.
 
-A popular style are 3¾ inch scale (retro) action figures in the style of the old Kenner Star Wars action figurs.
+A popular style is:
+
+* the **3¾ inch scale** (retro) action figures in the style of the vintage **Kenner** **Star Wars** action figures.
+
+Although there are other styles: such as:
+
+* the **3¾ inch scale** (retro) action figures in the style of the vintage **Fisher-Price** **Adventure People**,
+* the **3¾ inch scale** (retro) action figures in the style of the vintage **Kenner** **Super Powers Collection**,
+* the **3¾ inch scale** (retro) action figures in the style of the vintage **Hasbro** **G.I. Joe A.R.A.H.**,
 
 ## Bootleg Action Figure Artists
 
